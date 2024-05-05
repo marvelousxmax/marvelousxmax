@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **Networking & Collaborating**
 
-- 💬 Ask me about **Motivation/Collaborations/Conversation about Technology or gadgets.**
+- 💬 Ask me about **Motivation/Collaborations/Conversation about Technology**
 
 - 📫 How to reach me **maxwell.davis1240@gmail.com**
 
